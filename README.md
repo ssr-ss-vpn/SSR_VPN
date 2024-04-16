@@ -10,8 +10,8 @@ SSR是ShadowsocksR协议的缩写，ShadowsocksR是流行的跨墙协议Shadowso
 ## 推荐购买SSR节点 | 2024科学上网机场节点梯子购买
 以下提供SSR节点和V2ray节点的翻墙机场，使用体验相当，同时还包括原版SS节点、V2ray节点和木马节点机场，排名不分上下。只需购买的订阅导入Clash软件中，即可开启魔法上网之旅。为了稳定科学上外网，建议备有多个ssr机场梯子作为备用。
 
-### DDOV-网络加速器：[**注册即可免费试用**](https://doveee.com/a.php?asbcbO1PCgF)
-[**点击直达官网**](https://doveee.com/a.php?asbcbO1PCgF)
+### DDOV-网络加速器：[**注册即可免费试用**](https://tgjkdjfk.top/a.php?asbcbO1PCgF)
+[**点击直达官网**](https://tgjkdjfk.top/a.php?asbcbO1PCgF)
 
 DOVE加速器的优势：
 
@@ -40,7 +40,7 @@ V2ray协议诞生较晚，包含多种翻墙协议，是一个翻墙协议的集
 
 翻墙者通常会引用的V2ray节点或V2ray机场，通常提供V2ray中的Vmess协议，有少量机场提供最新的Vless协议。
 
-## 免费分享SSR和V2ray节点：[**注册即可免费试用**](https://doveee.com/a.php?asbcbO1PCgF)
+## 免费分享SSR和V2ray节点：[**注册即可免费试用**](https://tgjkdjfk.top/a.php?asbcbO1PCgF)
 
 [**点击直达官网**](https://doveee.com/a.php?asbcbO1PCgF)
 
